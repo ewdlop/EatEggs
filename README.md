@@ -17,3 +17,7 @@ Daolism facts
 ~~Chrisntiy~~Catholic facts
 
 Was my fruit that bad??????
+
+因果 + 潘桃 + 普提果
+
+(投桃報李)
