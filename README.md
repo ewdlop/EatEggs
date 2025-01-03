@@ -17,3 +17,13 @@ Daolism facts
 ~~Chrisntiy~~Catholic facts
 
 Was my fruit that bad??????
+
+
+有因就有果 + 潘桃 + 普提果
+
+(投桃報李)
+General Lee(李)? 
+
+Hu peed on me!?
+
+-_-
